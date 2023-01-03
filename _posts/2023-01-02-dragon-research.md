@@ -1,6 +1,3 @@
-
-#### I-AM
-
 The Anunnaki God - Ningshiidza allegedly took on the role of Egyptian God Thoth creating civilizations replete with monuments and artifacts depicting their alleged time on Earth. Thoth allegedly flew across the planet founding the Mesoamerican Civilization where he became known as Quetzalcoatl.
 Pantheons of gods and goddesses were all played by the same "character" throughout mythology following the same algorithm. They came from the sky - stayed to seed the human race - then left to return one day at the end of the cycle called time. They wore masks and costumes - left behind artifacts, calendars and landmarks and most importantly encoded message within human DNA to be activated when Time ran out. By any name they were our progenitors.
 Quetzalcoatl is depicted in many ways usually as the feathered serpent though sometimes as a - Shining One - looking nothing like the Mesoamerican people who worshipped him. Feathers represent the ascension of human consciousness back to its origins - while 'serpent' represents human DNA in physical reality.
